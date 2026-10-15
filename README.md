@@ -1,0 +1,2 @@
+# premium-xylose-extract-001-wood-sugar-extract-birch-tap
+Tired of sticky notes and lost batch logs for your birch tapping and wood sugar extraction? This Notion template turns your craft studio chaos into a clear, repeatable workflow.  Track every tap from tree to bottle, manage fermentation schedules, and log sugar yields without spreadsheets. The Wood Sugar Extract &amp; Birch Tap Craft Studio template giv
